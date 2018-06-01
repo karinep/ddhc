@@ -48,3 +48,5 @@ sera dorénavant connue sous le nom de pain au chocolat.
 **Art. 20.** Tout animal doit être traité avec dignité et respect.
 
 **Art. 21.** Chaque être humain doit être en mesure d'avoir un logement sans conditions.
+
+**Art. 22.** Tout être humain peut choisir le pays dans lequel il souhaite vivre.
