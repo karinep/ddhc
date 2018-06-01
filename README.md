@@ -43,19 +43,24 @@ En conséquence, l'Assemblée Nationale reconnaît et déclare, en présence et 
 **Art. 17.2** En aucun cas les ordinateurs ne devront imposer des décisions contraires à la volonté du peuple quelque soit l'évolution de l'IA. 
 
 **Art. 18.** Tout animal doit être traité avec dignité et respect.
+
 **Art. 18.** La viennoiserie composée de pâte feuilletée fourrée au chocolat
 sera dorénavant connue sous le nom de pain au chocolat.
 
 **Art. 18.1** Aucune décision ne devra être à l'origine de dégradations environnementales
 
 **Art. 19.** La viennoiserie composée de pâte feuilletée fourrée au chocolat sera dorénavant connue sous le nom de pain au chocolat.
-**Art. 19.** Nul ne peut être privé de chocolatine par l'article 18
 
-**Art. 20.** Nul ne peut être privé de chocolatine par l'article 19
-**Art. 20.** Tout animal doit être traité avec dignité et respect.
+**Art. 20.** Nul ne peut être privé de chocolatine par l'article 18
 
-**Art. 21.** Tout animal doit être traité avec dignité et respect.
-**Art. 21.** Chaque être humain doit être en mesure d'avoir un logement sans conditions.
+**Art. 21.** Nul ne peut être privé de chocolatine par l'article 19
 
-**Art. 22.** De la joie et de la bonne humeur toute l'année!
-**Art. 22.** Tout être humain peut choisir le pays dans lequel il souhaite vivre.
+**Art. 22.** Tout animal doit être traité avec dignité et respect.
+
+**Art. 23.** Tout animal doit être traité avec dignité et respect.
+
+**Art. 24.** Chaque être humain doit être en mesure d'avoir un logement sans conditions.
+
+**Art. 25.** De la joie et de la bonne humeur toute l'année!
+
+**Art. 26.** Tout être humain peut choisir le pays dans lequel il souhaite vivre.
