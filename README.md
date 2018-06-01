@@ -51,16 +51,21 @@ sera dorénavant connue sous le nom de pain au chocolat.
 
 **Art. 19.** La viennoiserie composée de pâte feuilletée fourrée au chocolat sera dorénavant connue sous le nom de pain au chocolat.
 
+**Art. 20.** Nul ne peut être privé de chocolatine par l'article 19
 **Art. 20.** Nul ne peut être privé de chocolatine par l'article 18
 
+**Art. 21.** Tout animal doit être traité avec dignité et respect.
 **Art. 21.** Nul ne peut être privé de chocolatine par l'article 19
 
+**Art. 22.** De la joie et de la bonne humeur toute l'année !
 **Art. 22.** Tout animal doit être traité avec dignité et respect.
 
+**Art. 23.** Il est vraiment interdit d'interdire, sauf cas extrêmes.
 **Art. 23.** Tout animal doit être traité avec dignité et respect.
 
+**Art. 23.1** Disons, vraiment super extrêmes, les cas extrêmes.
 **Art. 24.** Chaque être humain doit être en mesure d'avoir un logement sans conditions.
 
 **Art. 25.** De la joie et de la bonne humeur toute l'année!
+**Art. 23.2** L'extrêmitude des extrêmes est définie par votation à l'Assemblée Nationale.
 
-**Art. 26.** Tout être humain peut choisir le pays dans lequel il souhaite vivre.
