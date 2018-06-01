@@ -28,7 +28,7 @@ En conséquence, l'Assemblée Nationale reconnaît et déclare, en présence et 
 
 **Art. 12.** La garantie des droits de l'Homme et du Citoyen nécessite une force publique : cette force est donc instituée pour l'avantage de tous, et non pour l'utilité particulière de ceux auxquels elle est confiée.
 
-**Art. 13.** Pour l'entretien de la force publique, et pour les dépenses d'administration, une contribution commune est indispensable : elle doit être également répartie entre tous les citoyens, en raison de leurs facultés.
+**Art. 13.** Pour l'entretien de la force publique, et pour les dépenses d'administration, une contribution commune est indispensable : elle doit être également répartie entre tous les citoyens, en raison de leurs facultés financières.
 
 **Art. 14.** Tous les Citoyens ont le droit de constater, par eux-mêmes ou par leurs représentants, la nécessité de la contribution publique, de la consentir librement, d'en suivre l'emploi, et d'en déterminer la quotité, l'assiette, le recouvrement et la durée. 
 
@@ -40,15 +40,22 @@ En conséquence, l'Assemblée Nationale reconnaît et déclare, en présence et 
 
 **Art. 17.1** Les dépenses d'administration devront prendre en compte le renouvellement régulier des postes informatiques.
 
+**Art. 17.2** En aucun cas les ordinateurs ne devront imposer des décisions contraires à la volonté du peuple quelque soit l'évolution de l'IA. 
+
+**Art. 18.** Tout animal doit être traité avec dignité et respect.
 **Art. 18.** La viennoiserie composée de pâte feuilletée fourrée au chocolat
 sera dorénavant connue sous le nom de pain au chocolat.
 
 **Art. 18.1** Aucune décision ne devra être à l'origine de dégradations environnementales
 
+**Art. 19.** La viennoiserie composée de pâte feuilletée fourrée au chocolat sera dorénavant connue sous le nom de pain au chocolat.
 **Art. 19.** Nul ne peut être privé de chocolatine par l'article 18
 
+**Art. 20.** Nul ne peut être privé de chocolatine par l'article 19
 **Art. 20.** Tout animal doit être traité avec dignité et respect.
 
+**Art. 21.** Tout animal doit être traité avec dignité et respect.
 **Art. 21.** Chaque être humain doit être en mesure d'avoir un logement sans conditions.
 
+**Art. 22.** De la joie et de la bonne humeur toute l'année!
 **Art. 22.** Tout être humain peut choisir le pays dans lequel il souhaite vivre.
