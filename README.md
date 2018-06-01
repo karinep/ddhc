@@ -44,6 +44,7 @@ En conséquence, l'Assemblée Nationale reconnaît et déclare, en présence et 
 sera dorénavant connue sous le nom de pain au chocolat.
 
 **Art. 19.** Nul ne peut être privé de chocolatine par l'article 18
+**Art. 18.1** Aucune décision ne devra être à l'origine de dégradations environnementales
 
 **Art. 20.** Tout animal doit être traité avec dignité et respect.
 
