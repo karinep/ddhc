@@ -46,3 +46,5 @@ sera dorénavant connue sous le nom de pain au chocolat.
 **Art. 19.** Nul ne peut être privé de chocolatine par l'article 18
 
 **Art. 20.** Tout animal doit être traité avec dignité et respect.
+
+**Art. 21.** Chaque être humain doit être en mesure d'avoir un logement sans conditions.
